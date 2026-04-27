@@ -1,4 +1,4 @@
-
+Get the ultimate deadlock scripts cheat with automatic Cheat for deadlock scripts - enemy hero predictor and auto-hero movement speed. Featuring enemy hero predictor and auto-hero
 
 
 
